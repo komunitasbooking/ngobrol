@@ -1,0 +1,2 @@
+# ngobrol
+belajar jadi negosiator
